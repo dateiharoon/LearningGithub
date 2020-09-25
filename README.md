@@ -1,2 +1,2 @@
 Hi there
-How you ding
+How you doing
